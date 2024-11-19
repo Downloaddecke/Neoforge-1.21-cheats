@@ -7,4 +7,7 @@
 
 This is the new Cheat for minecraft java And Bedrock / cracked alts Injectable For Neoforge and without NeoForge too!
 
+![image](https://github.com/user-attachments/assets/099281bf-aeff-4769-ba75-d981f37c24ca)
+
+
 ![image](https://github.com/user-attachments/assets/313d5dcb-f624-4774-86a3-858a4c757330)
